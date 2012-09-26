@@ -1,0 +1,4 @@
+ground-screw-post-supports
+==========================
+
+We are a big ground screw manufacturer in China. We have unique production routings, which can save the production cost, and improve the exterior and quality at the same time. Item No. LEAH-U91-1000 Material:steel,ISO 630 Fe360A Surface:galvanized to DIN EN ISO 1461 a Tube Length:870mm b Outerφ: 67mm d Distance square fixing holes: 42 e Distance center fixing hole:90 f Distance square fixing holes:50 g Fixing hole:(suitable for M10 bolts) 11 i Width U-profile:70 j Depth U-profile:130 c Hole: Diameter: 13 h U-open width: 91http://www.ground-screw.com/pid10572685/ground+screw+post+supports.htm
